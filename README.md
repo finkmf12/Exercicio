@@ -1,1 +1,2 @@
 # Exercicio
+Quando eu tinha uns 9 ou 10 anos, inventei de virar “cientista” em casa. Peguei um copo e comecei a misturar várias coisas da geladeira, achando que ia criar a melhor bebida do mundo. Coloquei suco, refrigerante, leite, açúcar e até um pedaço de banana. A mistura ficou com uma cor estranha, mas mesmo assim eu provei. O gosto ficou horrível e eu quase passei mal. No fim, tive que jogar tudo fora e aprendi que nem toda ideia que parece genial na cabeça realmente funciona na prática.
